@@ -1,2 +1,0 @@
-# minhas-atividades
-Minhas atividades
